@@ -12,7 +12,7 @@ Cudcomf C+H very I dont even care, I am almost always offtab so W2I ^~^ Everyone
 
 I am Super anxious and shy so iwcaution but I ♡ meeting new people and Making friends, please dont hesitate to talk to me ingame!!!
 
-Read my [rentry](https://rentry.co/inho) and [sign my ata](https://cartmaneric.atabook.org) ( ˆ𐃷ˆ)
+Read my [rentry](https://rentry.co/inho) [sign my ata](https://cartmaneric.atabook.org) and my [strawpage](https://cartflovski.straw.page) ( ˆ𐃷ˆ)
        
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166tsapaifrxkjana6vw3lemm4e&cover_image=true&theme=default&show_offline=lfalse&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)
 
